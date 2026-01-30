@@ -1,10 +1,13 @@
 ## ★⋆⭒˚.⋆Mav⋆⭒˚.⋆★
-<img width="442" height="105" alt="cooltext492894419891923" src="https://github.com/user-attachments/assets/503ca3d8-deb4-450c-a9f0-c8155f6f9095" />
+![cooltext501255245149483](https://github.com/user-attachments/assets/0b6869e8-3702-452c-9e1d-d82fd8b5428f)
+
 
 ─── ･ ｡ﾟ☆: *.☽ .* :★. ───
 
-Hello I'm Mav!!
+Hello I'm Mavrik
 16 yo ★ PL/ENG ★ He/him
+
+idk what to put here look at my strawpage
 
 
 
