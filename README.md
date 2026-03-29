@@ -4,7 +4,7 @@
 
 ─── ･ ｡ﾟ☆: *.☽ .* :★. ───
 
-Hello I'm Mavrik
+Helloooo I'm Mavrik
 
 16 yo ★ PL/ENG ★ He/him
 
